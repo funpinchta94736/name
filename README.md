@@ -1,1 +1,1 @@
-The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
+The White Model M, introduced in 1905, was one of the first successful commercial trucks in the United States, featuring a robust design and powerful engine for hauling cargo.
