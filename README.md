@@ -1,1 +1,1 @@
-The Indianapolis Motor Speedway, built in 1909, became a renowned venue for automobile racing, hosting events like the Indianapolis 500, one of the oldest and most prestigious motorsport races.
+The Ford Super Deluxe, introduced in 1941 but produced into the post-war era, featured updated styling and amenities, making it a popular choice among American consumers.
