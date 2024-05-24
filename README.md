@@ -1,1 +1,1 @@
-The Ford Super Deluxe, introduced in 1941 but produced into the post-war era, featured updated styling and amenities, making it a popular choice among American consumers.
+The Locomobile Company of America, founded in 1899, was one of the first American manufacturers to produce gasoline-powered automobiles, competing with steam and electric cars of the era.
