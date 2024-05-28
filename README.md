@@ -1,1 +1,1 @@
-The Locomobile Company of America, founded in 1899, was one of the first American manufacturers to produce gasoline-powered automobiles, competing with steam and electric cars of the era.
+The Lincoln Continental, introduced in 1940 but produced after World War II, was a luxury car favored by celebrities and dignitaries for its elegant design and refined performance.
