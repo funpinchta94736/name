@@ -1,1 +1,1 @@
-The Pontiac Streamliner, introduced in 1942 but produced after World War II, featured streamlined styling and was one of the first cars to offer an automatic transmission as an option.
+The Locomobile Company of America, founded in 1899, was one of the first American manufacturers to produce gasoline-powered automobiles, competing with steam and electric cars of the era.
