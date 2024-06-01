@@ -1,1 +1,1 @@
-The Locomobile Company of America, founded in 1899, was one of the first American manufacturers to produce gasoline-powered automobiles, competing with steam and electric cars of the era.
+The Ford Model T, which had dominated the automotive market in the previous decade, ceased production in 1927, marking the end of an era for the iconic "Tin Lizzie."
