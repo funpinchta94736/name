@@ -1,1 +1,1 @@
-The Hudson Commodore, introduced in 1941 but popular in the post-war years, was a full-size car known for its innovative "step-down" design, which lowered the car's center of gravity for improved handling.
+Electric vehicles (EVs) were popular in the early 1900s, with companies like Baker Electric and Detroit Electric producing electric cars for urban transportation.
