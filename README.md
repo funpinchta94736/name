@@ -1,1 +1,1 @@
-The first modern gas station, designed specifically for automobiles, opened in 1905 in St. Louis, Missouri, offering fuel, oil, and other services to motorists.
+The Stanley Rocket, built by the Stanley brothers in 1906, set the world speed record for a steam-powered car, reaching a top speed of 127.66 mph at Ormond Beach, Florida.
