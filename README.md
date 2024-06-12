@@ -1,1 +1,1 @@
-The Locomobile Company of America, founded in 1899, was one of the first American manufacturers to produce gasoline-powered automobiles, competing with steam and electric cars of the era.
+The Duesenberg Model J, introduced in 1928, was one of the most luxurious and powerful cars of its time, featuring a massive inline-eight engine and exquisite craftsmanship.
