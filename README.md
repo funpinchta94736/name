@@ -1,1 +1,1 @@
-The Duesenberg Model J, introduced in 1928, was one of the most luxurious and powerful cars of its time, featuring a massive inline-eight engine and exquisite craftsmanship.
+The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
