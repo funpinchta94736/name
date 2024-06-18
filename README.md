@@ -1,1 +1,1 @@
-The Buick Master Six, introduced in 1925, was one of the first cars to feature four-wheel brakes as standard equipment, enhancing safety and control for drivers.
+The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
