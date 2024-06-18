@@ -1,1 +1,1 @@
-The LaSalle, introduced by Cadillac in 1927, was a mid-priced luxury car designed to bridge the gap between Cadillac and its more affordable companion brand, Buick.
+The Buick Master Six, introduced in 1925, was one of the first cars to feature four-wheel brakes as standard equipment, enhancing safety and control for drivers.
