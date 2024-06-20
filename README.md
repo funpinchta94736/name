@@ -1,1 +1,1 @@
-The Lincoln Motor Company, established in 1917, was acquired by Ford in 1922, positioning it as a luxury brand within the Ford Motor Company lineup.
+The Detroit Auto Show, first held in 1907, became a major event for showcasing new automobile models and innovations, attracting industry professionals and enthusiasts from around the world.
