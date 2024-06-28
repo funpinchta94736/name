@@ -1,1 +1,1 @@
-The Great Depression, which began with the stock market crash of 1929, had a profound impact on the automotive industry, leading to widespread layoffs, factory closures, and consolidation among automakers.
+The Ford Model T, introduced in 1908, revolutionized automobile manufacturing by being the first mass-produced car, making automobiles affordable for the average person.
