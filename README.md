@@ -1,1 +1,1 @@
-The Oldsmobile 98, introduced in 1941 but produced into the post-war era, was a flagship model known for its powerful engine, luxurious amenities, and cutting-edge technology.
+The Buick Motor Company, founded in 1903, quickly became one of the largest automobile manufacturers in the United States, known for its durable and reliable cars.
