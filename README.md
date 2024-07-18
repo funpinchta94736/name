@@ -1,1 +1,1 @@
-The Chevrolet Fleetline Aerosedan, introduced in 1941 but popular in the post-war period, featured sleek styling and was one of the first cars to incorporate streamlining for improved aerodynamics.
+The Great Depression, which began with the stock market crash of 1929, had a profound impact on the automotive industry, leading to widespread layoffs, factory closures, and consolidation among automakers.
