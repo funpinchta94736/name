@@ -1,1 +1,1 @@
-The Great Depression, which began with the stock market crash of 1929, had a profound impact on the automotive industry, leading to widespread layoffs, factory closures, and consolidation among automakers.
+World War II significantly impacted the automotive industry, with many manufacturers shifting production to wartime efforts, such as building military vehicles, tanks, and aircraft.
