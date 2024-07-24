@@ -1,1 +1,1 @@
-The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
+The Peerless Motor Car Company, founded in 1900, ceased automobile production in 1931 after struggling to compete with larger automakers during the economic downturn of the late 1920s.
