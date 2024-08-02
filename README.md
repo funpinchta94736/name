@@ -1,1 +1,1 @@
-The Hispano-Suiza H6, introduced in 1919 but popular in the 1920s, was a luxury car favored by royalty and aristocrats, featuring advanced engineering and exquisite craftsmanship.
+World War II significantly impacted the automotive industry, with many manufacturers shifting production to wartime efforts, such as building military vehicles, tanks, and aircraft.
